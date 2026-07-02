@@ -7,6 +7,7 @@
 <p align="center">  𝄈⠀  odyss ╱ <b><i>buck</i></b> ╱ wyn ⠀<img width="17" height="17" alt="white_bandage" src="https://github.com/user-attachments/assets/da3f85af-eb28-4bf5-ad46-ea0709ff6ff1" /></p>
 <p align="center"> <b>eight</b>teen . .⠀any ╱ all pronouns </p>
 <p align="center"> audhd ∷ <b><i>processing difficulties</i></b> ∷ tone tag user </p>
+<p align="center"> . . . <b><i>fiction</i></b><b><b>kin</b> </p>
   
 ### ‎<p align="center"> <b>[atabook.](https://buck.atabook.org)  [strawpage.](https://odyss.straw.page) [rentry.](https://rentry.co/oddyss) [last.fm](https://www.last.fm/user/oddyss)</b></p>
 
