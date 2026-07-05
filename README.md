@@ -5,7 +5,7 @@
 
 odyss | <i>buck</i> | wyn
 --- | --- | ---
-<b>eight</b>teen | `any / all` | autism & adhd
+<b>eight</b>teen | `any / all or it / its` | autism & adhd
 fictionkin | kintwins welcome | chaotic evil intp
 [atabook](https://buck.atabook.org) | [pronouns](https://pronouns.cc/@buck) | [last.fm](https://www.last.fm/user/oddyss)‎
 
@@ -13,4 +13,4 @@ fictionkin | kintwins welcome | chaotic evil intp
 
 ${\color{#9f8f76}sergeant \space \space \space \space \space \space \space sad \space \space \space \space \space \space \space eyes \space \space \space \space \space \space \space reporting \space \space \space \space \space \space \space \space for \space \space \space \space \space \space \space misery}$
 <p align="left">
-<img align="left" width="349" height="101" src="https://spotify-github-profile.kittinanx.com/api/view?uid=ai4h7whh7g3pw2gbihy4ae8xy&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&bar_color=a6907c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"> </p>
+<img align="left" width="339" height="101" src="https://spotify-github-profile.kittinanx.com/api/view?uid=ai4h7whh7g3pw2gbihy4ae8xy&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&bar_color=a6907c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"> </p>
