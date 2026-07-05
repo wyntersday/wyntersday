@@ -5,7 +5,7 @@
 
 odyss | <i>buck</i> | wyn
 --- | --- | ---
-<b>eight</b>teen | `any   /   all` | autism & adhd
+<b>eight</b>teen | `any    /    all` | autism & adhd
 fictionkin | kintwins welcome | chaotic evil intp
 [atabook](https://buck.atabook.org) | [pronouns](https://pronouns.cc/@buck) | [last.fm](https://www.last.fm/user/oddyss)‎
 
